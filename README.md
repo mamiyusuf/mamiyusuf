@@ -27,4 +27,4 @@ Bana her zaman ulaşabilirsiniz:
 
 ---
 
-> "Yazılım sadece bir iş değil, aynı zamanda bir yaşam tarzıdır." – [Adınız]
+> "Yazılım sadece bir iş değil, aynı zamanda bir yaşam tarzıdır." – [MUHAMMEED YUSUF ERDİL]

@@ -29,7 +29,7 @@ Beni sosyal medyada takip edebilirsiniz:
 ### İletişim
 Bana her zaman ulaşabilirsiniz:
 
-- Email: [email@domain.com](erdilmuhammedyusuferdil.com)
+- Email: [email@domain.com](erdilmuhammedyusuf@gmail.com)
 
 ---
 
